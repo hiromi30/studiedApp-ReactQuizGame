@@ -1,4 +1,4 @@
-This is my studied log.
+This is my study log..
 I learn from youtube: URL:https://www.youtube.com/watch?v=AB1nzr83I8g&list=PLFxNAWX8zDY8ZA8Wja2mwbqvD_53Vz7Tl&index=15&t=1645s
 
 Thanks.
